@@ -37,4 +37,4 @@ Aquí iré subiendo proyectos pequeños mientras aprendo y mejoro mis habilidade
 
 ## 📫 Contacto
 
-📷 Instagram: [acnico_](https://www.instagram.com/acnico_/)
+📷 Instagram: [acnico_](https://www.instagram.com/aacnico/)
